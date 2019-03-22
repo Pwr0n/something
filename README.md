@@ -1,2 +1,2 @@
 # something
-something for use!
+something for us.
